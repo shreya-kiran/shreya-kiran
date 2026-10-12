@@ -27,8 +27,6 @@ I'm a Computer Science student who loves building projects, exploring new techno
 ### 🌸 A Little More About Me
 
 - 💡 I have many hobbies - running(marathoner), crafting, playing sports&#x20;
-- 🧩 I am competetive
-- 🌷 Growing at my own pace, both personally and professionally
 
 ### 🤍 Let's Connect
 
